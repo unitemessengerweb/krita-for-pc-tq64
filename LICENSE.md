@@ -1,4 +1,4 @@
-# 
+# Krita for PC | Krita for Windows smart Preset: content-aware-fill & photo-restoration offers the most advanced Krita for PC | Krita for Windows preset, with content-aware-fill and
 
 
 
